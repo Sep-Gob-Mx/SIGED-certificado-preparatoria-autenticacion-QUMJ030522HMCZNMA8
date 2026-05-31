@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-QUMJ030522HMCZNMA8
+QUMJ030522HMCZNMA8
